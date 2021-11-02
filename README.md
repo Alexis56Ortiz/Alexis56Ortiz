@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alexis56Ortiz
-- 👀 I’m interested in streaming, and cuisine, in my lawyer activity 
+- 👀 I’m interested in streaming, cuisine and in my lawyer activity 
 - 🌱 I’m currently learning law ando otherwise activities.
 - 💞️ I’m looking to collaborate on streams with an another content creators
 - 📫 How to reach me with a lot of food and Bacardi, the love of my live. 
